@@ -3,7 +3,7 @@ Here are some of my favorite skins that I often use on Pony Town:
 
 
 
- (![pony-town-She can make balloons! __mv-trot-blinking-padded-toy124-4x](https://github.com/user-attachments/assets/a7e20b1e-766d-4b9a-860d-2e634a3e130c)
+ ![pony-town-She can make balloons! __mv-trot-blinking-padded-toy124-4x](https://github.com/user-attachments/assets/a7e20b1e-766d-4b9a-860d-2e634a3e130c)
 
 
 
